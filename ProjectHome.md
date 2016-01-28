@@ -1,0 +1,1 @@
+Planners Koncept (division of the KK group) is one of the leading consultants working in the diversified field of town planning, architecture, engineering, property valuations and infrastructure developments. The firm is headed by highly qualified professionals from reputed School of Planning & Architecture, New Delhi.
